@@ -1,2 +1,0 @@
-# Oguzhan
-Yokuz Amk
